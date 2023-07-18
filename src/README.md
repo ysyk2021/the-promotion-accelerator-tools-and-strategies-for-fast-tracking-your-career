@@ -16,5 +16,4 @@ In this book, you'll learn:
 
 We believe that anyone can be a promotion accelerator with the right mindset, skills, and strategies. We hope that this book will serve as a valuable resource for achieving your professional goals and unlocking your full potential in your career.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
