@@ -1,4 +1,4 @@
-Chapter: Techniques for Building Self-Awareness in Relation to Promotion Acceleration
+Techniques for Building Self-Awareness in Relation to Promotion Acceleration
 =====================================================================================
 
 Introduction

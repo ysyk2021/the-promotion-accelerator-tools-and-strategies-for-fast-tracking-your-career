@@ -1,4 +1,4 @@
-Chapter 1: Why Accelerating Your Promotion is Important
+Why Accelerating Your Promotion is Important
 =======================================================
 
 Introduction
