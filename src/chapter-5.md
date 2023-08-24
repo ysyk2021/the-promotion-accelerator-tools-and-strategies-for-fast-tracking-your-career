@@ -1,5 +1,3 @@
-Chapter 4: Navigating Organizational Politics
-=============================================
 
 Navigating organizational politics is a crucial component of achieving promotion acceleration. In this chapter, we will explore the importance of navigating organizational politics, techniques for managing it, and building networking and relationship-building skills.
 

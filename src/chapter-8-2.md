@@ -1,5 +1,3 @@
-Techniques for Implementing and Communicating Changes
-========================================================================================================
 
 Implementing and communicating changes is a critical component of promotion acceleration. As individuals progress in their careers, they will inevitably encounter situations that require them to implement new initiatives, programs, or processes, and to persuade others to support these changes.
 
