@@ -1,3 +1,6 @@
+# The Promotion Accelerator: Tools and Strategies for Fast-Tracking Your Career
+
+Book Link: [https://zhengpublishing.com/the-promotion-accelerator-tools-and-strategies-for-fast-tracking-your-career/](https://zhengpublishing.com/the-promotion-accelerator-tools-and-strategies-for-fast-tracking-your-career/)
 
 In today's fast-paced and competitive work environment, climbing the corporate ladder can be a challenging and daunting task. Many professionals struggle to advance their careers and achieve their professional goals, often feeling stuck or uncertain about how to move forward.
 
